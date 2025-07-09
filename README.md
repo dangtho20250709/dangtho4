@@ -10,4 +10,4 @@
 
 这些日韩精品资源站为观众提供了大量高清无码片源，影片覆盖各类剧情、题材和精选演员阵容，满足多样化观影需求。用户可在每个视频页面查看影片时长、清晰度、分类标签等信息。平台具备智能优化功能，可根据设备与网络状况自动调整画质，实现高效流畅播放体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangtho20250709/dangtho4 ）</span>
